@@ -9,5 +9,3 @@ Best reagards.
 
 Sincerely
 Zhongyi Luo
-903141808
-zluo60@gatech.edu
